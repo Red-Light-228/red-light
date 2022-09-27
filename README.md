@@ -3,5 +3,5 @@
 
 #### Telegram Channel: https://t.me/T0X1CCF
 #### Telegram Private Messages: https://t.me/vsxv228
-#### Instagram: @low.light_228
+#### Instagram: https://instagram.com/low.light_228?igshid=YmMyMTA2M2Y=
 #### YouTube: 
