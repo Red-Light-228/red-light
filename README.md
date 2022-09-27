@@ -5,3 +5,5 @@
 #### Telegram Private Messages: https://t.me/vsxv228
 #### Instagram: https://instagram.com/low.light_228?igshid=YmMyMTA2M2Y=
 #### YouTube: https://youtube.com/channel/UCkDuUabnySvk7f7qkE67Qrw
+
+##### Если вы хотите мне помочь с сайтом прошу писать в лс тг или инст
